@@ -1,1 +1,1 @@
-# Photography-and-Blog-Portfolio-By-Bhupesh
+# Photography-and-blog-Portfolio
